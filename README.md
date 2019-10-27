@@ -4,10 +4,10 @@
   people have any friends of know anyone of the following religions: Buddhism, Islam, Hinduism, Jehovah's witness, Mormonism, Wicca, Satanism, Atheistism, Agnosticism, Confucianism, Judaism,
 - ask if they're willing to share stories of their interactions/conversations with them
 
-- To introduce question, play Sproul 1:09 - 1:35,
-  2:44 - 4:56 - what's the assumption?
+- To introduce question, play Sproul 1:09 - 1:35 (Credit: https://www.ligonier.org/learn/series/objections-answered/the-innocent-native/)
+  Play 2:44 - 4:56 - what's the assumption?
 
-## Verses
+## Verses for Small Group study
 
 - Rom 3:9-23
   Q: Is there such a thing as an innocent person?
@@ -26,7 +26,7 @@
 
 # What about people from other religions who haven't heard about Jesus, what happens to them after they die?
 
-- Play Carey Nieuwhof Ep 77: 1:15:08 - 1:20:01
+- Play Carey Nieuwhof Ep: 771:15:08 - 1:20:01 (Credit: https://careynieuwhof.com/episode77/)
 
 ## Share story about co-worker who believed in aliens and new-age meditation, thought Jesus was an ascended master
 
@@ -34,11 +34,11 @@
 - keep in mind God reveals Himself through nature / witness
   Q: How many of your friends or people you know believe in new age stuff?
 
-- Play Steven Bancarz testimony 14 mins
+- Play Steven Bancarz testimony 14 mins (Credit: https://www.youtube.com/watch?v=cMu5F2icsT8)
 
 - Use your discernment watching these videos. You may not agree with
   everything they say, but for me I can appreciate their new spiritual eyes/point of view that I may be blinded to. For example, halloween - should we participate in it or not?
-- Play Bancarz other video exposing occult objects 3mins
+- Play Bancarz other video exposing occult objects 3mins (Credit: https://www.youtube.com/watch?v=fC6TVczb8Uc)
 
 ## Give my Catholic conversion testimony
 
@@ -46,7 +46,7 @@
 
 Q: has anyone ever felt like when they were sleeping, something evil was choking them?
 
-- Play John Ramirez 14 mins
+- Play John Ramirez 14 mins (Credit: https://www.youtube.com/watch?v=I11L71PD3Lw)
 
 # Conclusion
 
